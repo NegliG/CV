@@ -10,7 +10,6 @@ I am a Guatemalan Health Sciences Ph.D. student deeply interested in researching
 
 Higher education
 
-Period	Institution	Degree
 2004 – 2011	University of San Carlos of Guatemala	Bachelor Degree in International Relations
 2017 – 2019	University of the Valley of Guatemala	Master of Science in Human Development
 2021 - 	¹State University of Campinas	PhD Student in Health Sciences
